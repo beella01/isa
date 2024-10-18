@@ -2,7 +2,11 @@
 
 Alguns Livros Para Você!!
 
+
+https://media.tenor.com/qvwcFWrFFMQAAAAi/grimoire-spellbook.gif
+
 1° É Assim Que Acaba
     *Imagem:*
-    *https://m.media-amazon.com/images/I/81jqGtBE2qL._AC_UF1000,1000_QL80_.jpg*
     
+
+https://media1.tenor.com/m/pH1GJwWm2HIAAAAC/laughing-lily-bloom.gif
